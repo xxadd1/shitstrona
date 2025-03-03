@@ -1,2 +1,2 @@
-# shitstrona
-shitstrona
+ShitM0re |
+Dev
